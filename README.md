@@ -17,4 +17,4 @@ I went to Taiwan in 2018 to persue my bechelor degree in Business Administration
 
 I went to Taiwan with zero skill in Mandarin and went to a college majoring in Finance with full Mandarin Langauage Courses. I had really a hard time at the moment but I am truly beyond blessed and grateful for that. I often think back about my first year in Taiwan and how it shaped me in so many ways and had shaped me become the person that i am now. 
 
-I can't believe I've already 5 years here in Taiwan. I am looking forward to have a working experience here after I graduated. 
+I can't believe I've already 5 years here in Taiwan but I am still hoping and looking forward to have a working experience here after I graduated. 
