@@ -5,4 +5,4 @@ Hello World!
 
 My name is Devika Tristha 
 - Tunghai University 
-- Global MBA 
+- Global MBA Tunghai University 
