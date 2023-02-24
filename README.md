@@ -7,7 +7,7 @@ Welcome to My GitHub Profile!
 
 My name is Devika Tristha Phylicia. Currently, I am a Global MBA student at Tunghai University. I have an interest in Finance and Accounting field and recently I more into Data Analytics things. I am curious how the profesionals in this field work their job. 
 
-Talk about hobbie, I love doing sports. I am a dog lovers too :)
+Talk about hobby, I love doing sports. I am a dog lovers too :)
 
 **EDUCATION**
 
